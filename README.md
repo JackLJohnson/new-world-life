@@ -1,2 +1,2 @@
 # new-world-life
-ideas and innovation
+Ideas and Innovation
